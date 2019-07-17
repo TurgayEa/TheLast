@@ -1,0 +1,2 @@
+# TheLast
+TheLastEmpire Discord Sunucusu
